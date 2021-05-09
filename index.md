@@ -44,6 +44,21 @@ Noah Fritz, 18 Jahre
 
 Johanna Dörfling, 21 Jahre
 
+Norman Haas, 18 Jahre
+
+Raphael Schneider, 20 Jahre
+
+Chantal Fetsch, 18 Jahre
+
+Louisa Moog, älter als 21 Jahre
+
+Julian Bienek, 19 Jahre
+
+Huong Ha,18 Jahre
+
+Amira Küssell, 20 Jahre
+
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
