@@ -70,6 +70,8 @@ Daniel Oeltze, 19 Jahre
 
 Nathan Riedel, 17 Jahre
 
+Tim Klotz, 20 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
