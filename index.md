@@ -68,6 +68,8 @@ Antoine Martinet, 18 Jahre
 
 Daniel Oeltze, 19 Jahre
 
+Nathan Riedel, 17 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
