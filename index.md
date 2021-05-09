@@ -84,6 +84,9 @@ Luka Scharmann, 21 Jahre
 
 Isabel Wenz, älter als 21 Jahre
 
+Emily Bär, 18 Jahre
+
+Paul Weinharra, 19 Jahre
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
