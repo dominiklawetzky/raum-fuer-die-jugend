@@ -6,7 +6,7 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 **Das Problem: Der Jugend fehlt die Lobby.**
 
-[Diese Initiative unterstützen!](https://forms.gle/pg3r5DJwm6g1Dbwy5)
+[![Initiative unterstützen!](button.png)](https://forms.gle/pg3r5DJwm6g1Dbwy5)
 
 ### Was wir fordern ...
 
@@ -28,4 +28,10 @@ Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen
 
 
 ### Unterzeichner\*innen
+_Die Liste wird täglich, aber nicht live aktualisiert._
+
+#### Personen
+
+
+#### Vereine / Organisationen
 
