@@ -40,6 +40,8 @@ Catherine Leber, 19 Jahre
 
 Malin Oltmann, 18 Jahre
 
+Noah Fritz, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
