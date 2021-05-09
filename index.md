@@ -1,10 +1,10 @@
-## Welcome to GitHub Pages
+## Schafft wieder Raum für die Jugend!
 
-You can use the [editor on GitHub](https://github.com/dominiklawetzky/raum-fuer-die-jugend/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Seit mehreren Jahren werden Jugendliche im Rheingau aus dem öffentlichen Raum verdrängt. Es gibt immer weniger Orte, an denen sich Jugendliche – auch jenseits der Corona-Pandemie – treffen und auch ausgewogen feiern können. Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke untersagt, die Skater-Bahn wird routinemäßig von der Polizei überwacht, Rheingauer Weinbergshütten werden geschlossen und videoüberwacht, Sportplätze sind nicht allgemein zugänglich und Jugendzentren werden teils geschlossen.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+**Das Problem: Der Jugend fehlt die Lobby.**
 
-### Markdown
+### Was wir fordern ...
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
