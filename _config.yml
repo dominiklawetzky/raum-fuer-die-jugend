@@ -1,6 +1,6 @@
 theme: jekyll-theme-minimal
 
-theme: post
+layout: post
 logo: /RfdJ_Logo0.5x.png
 
 title: Raum für die Jugend
