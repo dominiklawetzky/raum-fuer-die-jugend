@@ -78,6 +78,8 @@ Benedikt Wenz, 21 Jahre
 
 Gianna Maria Hönig, 20 Jahre
 
+Luka Scharmann, 21 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
