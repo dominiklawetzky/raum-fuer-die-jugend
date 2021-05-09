@@ -32,7 +32,9 @@ Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen
 _Die Liste wird täglich, aber nicht live aktualisiert._
 
 #### Personen
-
+Dominik Lawetzky, 21 Jahre
+Catherine Leber, 19 Jahre
 
 #### Vereine / Organisationen
+Grüne Jugend Rheingau-Taunus
 
