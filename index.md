@@ -91,4 +91,6 @@ Paul Weinharra, 19 Jahre
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
+### Alter der Unterzeichner\*innen
 
+[![Altersverteilung](/alter.png)]
