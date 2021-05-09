@@ -24,7 +24,7 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 **Skater-Bahn in Eltville:** nicht gut erreichbar und häufige Polizeikontrollen
 
-**Sportplätze:** zu großen Teilen geschlossen oder nur für Vereinsmitglieder (eingeschränkt) zugänglich
+**Sportplätze im Rheingau:** zu großen Teilen geschlossen oder nur für Vereinsmitglieder (eingeschränkt) zugänglich
 
 **Park hinter dem Rewe-Markt am Eltviller Kiliancenter:** Alkoholverbotszone
 
