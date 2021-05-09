@@ -17,8 +17,11 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 ### Eine Liste mit Orten, die weggefallen sind ...
 **Rheinufer in Eltville:** Nur eingeschränkt für Jugendliche attraktiv, großflächiges Alkoholverbot, häufige Polizeikontrollen, zudem von an Wochenenden und Feiertagen Tourist\*innen überrannt
+
 **Weinberge:** Einige Hütten wurden geschlossen, andere sind sogar videoüberwacht
+
 **Jugendtreff in Kiedrich:** wird ggf. schließen wegen eines neu erschlossenen Wohngebiets
+
 **Skater-Bahn in Eltville:** nicht gut erreichbar und häufige Polizeikontrollen
 
 Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen? [Hier melden!](https://forms.gle/VE1cerB4QKc21n8r8)
