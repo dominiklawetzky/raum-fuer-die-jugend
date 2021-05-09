@@ -8,6 +8,8 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 [Diese Initiative unterstützen!](https://forms.gle/pg3r5DJwm6g1Dbwy5)
 
+[![Image name](/logo.png)](http://www.host.com/link.html)
+
 ### Was wir fordern ...
 
 - Jugendliche und typisch jugendliche Aktivität dürfen nicht systematisch diskriminiert werden.
