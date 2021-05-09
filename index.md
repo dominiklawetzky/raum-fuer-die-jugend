@@ -76,6 +76,8 @@ Marek Barth, 20 Jahre
 
 Benedikt Wenz, 21 Jahre
 
+Gianna Maria Hönig, 20 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
