@@ -56,7 +56,7 @@ Louisa Moog, älter als 21 Jahre
 
 Julian Bienek, 19 Jahre
 
-Huong Ha,18 Jahre
+Huong Ha, 18 Jahre
 
 Amira Küsell, 20 Jahre
 
