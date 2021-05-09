@@ -26,6 +26,7 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen? [Hier melden!](https://forms.gle/VE1cerB4QKc21n8r8)
 
+---
 
 ### Unterzeichner\*innen
 _Die Liste wird täglich, aber nicht live aktualisiert._
