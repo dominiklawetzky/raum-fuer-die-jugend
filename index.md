@@ -35,7 +35,9 @@ _Die Liste wird täglich, aber nicht live aktualisiert._
 
 #### Personen
 Dominik Lawetzky, 21 Jahre
+
 Catherine Leber, 19 Jahre
+
 Malin Oltmann, 18 Jahre
 
 #### Vereine / Organisationen
