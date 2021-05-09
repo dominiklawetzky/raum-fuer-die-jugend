@@ -42,6 +42,8 @@ Malin Oltmann, 18 Jahre
 
 Noah Fritz, 18 Jahre
 
+Johanna Dörfling, 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
