@@ -93,4 +93,4 @@ Grüne Jugend Rheingau-Taunus
 
 ### Alter der Unterzeichner\*innen
 
-[![Altersverteilung](/alter.png)]
+![Altersverteilung](/alter.png)
