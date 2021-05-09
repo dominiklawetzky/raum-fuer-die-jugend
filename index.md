@@ -60,6 +60,14 @@ Amira Küssell, 20 Jahre
 
 Finn Amrein, 20 Jahre
 
+Leonard Schreiber, 20 Jahre
+
+Luisa Pansa, 19 Jahre
+
+Antoine Martinet, 18 Jahre
+
+Daniel Oeltze, 19 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
