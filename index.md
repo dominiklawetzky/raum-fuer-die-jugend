@@ -13,7 +13,7 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 - Jugendliche und typisch jugendliche Aktivitäten dürfen nicht systematisch diskriminiert werden.
 - Für jeden Ort, der Jugendlichen weggenommen wird, muss ein gleichwerter Ort geschaffen werden, an dem sich Jugendliche wohlfühlen.
 - Dafür müssen die Interessen der Jugend niedrigschwellig angehört und berücksichtigt werden.
-- Kollektivstrafen aufgrund des Handelns einzelner Chaot\*innen lehnen wir ab. (siehe Punkt 1)
+- Kollektivstrafen aufgrund des Handelns einzelner Chaot\*innen lehnen wir ab. Das führt nur zur Verhärtung der Fronten und sorgt für Unmut. (siehe Punkt 1)
 
 ### Eine Liste mit Orten, die weggefallen sind ...
 **Rheinufer in Eltville:** Nur eingeschränkt für Jugendliche attraktiv, großflächiges Alkoholverbot, häufige Polizeikontrollen und an Wochenenden und Feiertagen von Tourist\*innen überrannt
