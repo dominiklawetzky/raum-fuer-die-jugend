@@ -96,5 +96,7 @@ Mika Leppla, 20 Jahre
 
 Sven Jörgenshaus, älter als 21 Jahre
 
+Mayla Bakshi, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
