@@ -12,3 +12,6 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 - Für jeden Ort, der Jugendlichen weggenommen wird, muss ein gleichwerter Ort geschaffen werden, an dem sich Jugendliche wohlfühlen.
 - Dafür müssen die Interessen der Jugend niedrigschwellig angehört und berücksichtigt werden.
 - Kollektivstrafen aufgrund des Handelns einzelner Chaot\*innen lehnen wir ab. (siehe Punkt 1)
+
+### Unterzeichner\*innen
+
