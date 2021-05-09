@@ -58,6 +58,8 @@ Huong Ha,18 Jahre
 
 Amira Küssell, 20 Jahre
 
+Finn Amrein, 20 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
