@@ -82,6 +82,8 @@ Gianna Maria Hönig, 20 Jahre
 
 Luka Scharmann, 21 Jahre
 
+Isabel Wenz, älter als 21 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
