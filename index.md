@@ -16,7 +16,7 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 - Kollektivstrafen aufgrund des Handelns einzelner Chaot\*innen lehnen wir ab. (siehe Punkt 1)
 
 ### Eine Liste mit Orten, die weggefallen sind ...
-**Rheinufer in Eltville:** Nur eingeschränkt für Jugendliche attraktiv, großflächiges Alkoholverbot, häufige Polizeikontrollen, zudem von an Wochenenden und Feiertagen Tourist\*innen überrannt
+**Rheinufer in Eltville:** Nur eingeschränkt für Jugendliche attraktiv, großflächiges Alkoholverbot, häufige Polizeikontrollen und an Wochenenden und Feiertagen von Tourist\*innen überrannt
 
 **Rheingauer Weinberge:** Einige Hütten wurden geschlossen, andere sind sogar videoüberwacht
 
