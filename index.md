@@ -1,4 +1,4 @@
-## Schafft wieder Raum für die Jugend!
+## Wieder mehr Raum für die Jugend!
 
 Seit mehreren Jahren werden Jugendliche im Rheingau Stück für Stück aus dem öffentlichen Raum verdrängt. Es gibt immer weniger Orte, an denen sich Jugendliche – auch jenseits der Corona-Pandemie – treffen und auch ausgewogen feiern können. 
 
