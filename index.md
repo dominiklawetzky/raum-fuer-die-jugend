@@ -13,5 +13,7 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 - Dafür müssen die Interessen der Jugend niedrigschwellig angehört und berücksichtigt werden.
 - Kollektivstrafen aufgrund des Handelns einzelner Chaot\*innen lehnen wir ab. (siehe Punkt 1)
 
+[**Diese Initiative unterstützen!**](https://forms.gle/pg3r5DJwm6g1Dbwy5)
+
 ### Unterzeichner\*innen
 
