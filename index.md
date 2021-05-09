@@ -88,9 +88,9 @@ Emily Bär, 18 Jahre
 
 Paul Weinharra, 19 Jahre
 
+Patrick Klein, 21 Jahre
+
+Laura Spruch, älter als 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
-
-### Alter der Unterzeichner\*innen
-
-![Altersverteilung](/alter.svg)
