@@ -6,14 +6,14 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 **Das Problem: Der Jugend fehlt die Lobby.**
 
+[Diese Initiative unterstützen!](https://forms.gle/pg3r5DJwm6g1Dbwy5)
+
 ### Was wir fordern ...
 
 - Jugendliche und typisch jugendliche Aktivität dürfen nicht systematisch diskriminiert werden.
 - Für jeden Ort, der Jugendlichen weggenommen wird, muss ein gleichwerter Ort geschaffen werden, an dem sich Jugendliche wohlfühlen.
 - Dafür müssen die Interessen der Jugend niedrigschwellig angehört und berücksichtigt werden.
 - Kollektivstrafen aufgrund des Handelns einzelner Chaot\*innen lehnen wir ab. (siehe Punkt 1)
-
-[Diese Initiative unterstützen!](https://forms.gle/pg3r5DJwm6g1Dbwy5)
 
 ### Eine Liste mit Orten, die weggefallen sind ...
 **Rheinufer in Eltville:** Nur eingeschränkt für Jugendliche attraktiv, großflächiges Alkoholverbot, häufige Polizeikontrollen, zudem von an Wochenenden und Feiertagen Tourist\*innen überrannt
