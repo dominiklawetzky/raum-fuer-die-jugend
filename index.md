@@ -56,7 +56,7 @@ Julian Bienek, 19 Jahre
 
 Huong Ha,18 Jahre
 
-Amira Küssell, 20 Jahre
+Amira Küsell, 20 Jahre
 
 Finn Amrein, 20 Jahre
 
@@ -71,6 +71,10 @@ Daniel Oeltze, 19 Jahre
 Nathan Riedel, 17 Jahre
 
 Tim Klotz, 20 Jahre
+
+Marek Barth, 20 Jahre
+
+Benedikt Wenz, 21 Jahre
 
 
 #### Vereine / Organisationen
