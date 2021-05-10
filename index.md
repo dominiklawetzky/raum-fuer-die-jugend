@@ -194,6 +194,10 @@ Thomas Wieczorek, älter als 21 Jahre
 
 Werner Fladung, älter als 21 Jahre
 
+Matthias Ott, älter als 21 Jahre
+
+Leon Urbach, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
