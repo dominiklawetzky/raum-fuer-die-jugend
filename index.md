@@ -174,5 +174,13 @@ Beatrice Kreuzberger, 20 Jahre
 
 Johanna Schmitt, 18 Jahre
 
+Bastian Gasper, 19 Jahre
+
+Magdalena Priester, 19 Jahre
+
+Yadira Radke, 16 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
+
+Jusos Rheingau-Taunus
