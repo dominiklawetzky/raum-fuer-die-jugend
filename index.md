@@ -184,6 +184,8 @@ Fabia Goetze, 19 Jahre
 
 Carlo Bong, 19 Jahre
 
+Marie-Christin Stettler, 19 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
