@@ -194,6 +194,8 @@ Janne Volz, 19 Jahre
 
 Thomas Wieczorek, älter als 21 Jahre
 
+Werner Fladung, älter als 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
