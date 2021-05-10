@@ -183,4 +183,4 @@ Yadira Radke, 16 Jahre
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
-Jusos Rheingau-Taunus
+Jusos Rheingau-Taunus-Kreis
