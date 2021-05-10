@@ -98,5 +98,9 @@ Sven Jörgenshaus, älter als 21 Jahre
 
 Mayla Bakshi, 18 Jahre
 
+Cedric Leber, 17 Jahre
+
+Emily Kindt, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
