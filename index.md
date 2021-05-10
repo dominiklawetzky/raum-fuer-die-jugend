@@ -172,5 +172,7 @@ Frederic Lippert, älter als 21 Jahre
 
 Beatrice Kreuzberger, 20 Jahre
 
+Johanna Schmitt, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
