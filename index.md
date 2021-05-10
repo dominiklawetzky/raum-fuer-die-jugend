@@ -188,6 +188,8 @@ Marie-Christin Stettler, 19 Jahre
 
 Simon Weyhofen, 18 Jahre
 
+Tim Heyer, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
