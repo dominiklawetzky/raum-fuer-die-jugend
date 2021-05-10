@@ -114,5 +114,11 @@ Tobias Richter, 18 Jahre
 
 Jan-Christian Wilhelm, 18 Jahre
 
+Adriana Schwab, 18 Jahre
+
+Jona Böttchen, 18 Jahre
+
+Carla Mudrack, 20 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
