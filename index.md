@@ -152,5 +152,17 @@ Felix Bauer, 17 Jahre
 
 Alexandra Reinartz, älter als 21 Jahre
 
+Jan Kornfeld, 18 Jahre
+
+Lukas Prütz, 19 Jahre
+
+Sabine Schneider, älter als 21 Jahre
+
+Hannah Schneider, 16 Jahre
+
+Fatma Aydin, 16 Jahre,
+
+Benedikt Schäfer, älter als 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
