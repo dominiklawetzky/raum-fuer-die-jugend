@@ -264,6 +264,14 @@ Janne Bartsch, 16 Jahre
 
 Björn Eichenauer, älter als 21 Jahre
 
+Susanne Schäfermeier, älter als 21 Jahre
+
+Leonardo Quirin, 18 Jahre
+
+Ben Rosskopf, 20 Jahre
+
+Stella Fries, 20 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
