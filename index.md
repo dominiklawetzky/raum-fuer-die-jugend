@@ -102,5 +102,15 @@ Cedric Leber, 17 Jahre
 
 Emily Kindt, 18 Jahre
 
+Alexander Schwab, 18 Jahre
+
+Jan Jannsen, 18 Jahre
+
+Gian Luca Sundermann, 18 Jare
+
+Patricia Wende, 18 Jahre
+
+Tobias Richter, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
