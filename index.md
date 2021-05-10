@@ -136,5 +136,17 @@ Lukas Neubauer, 18 Jahre
 
 Annika Minert, 18 Jahre
 
+Tim Schädlich, älter als 21 Jahre
+
+Lukas Prütz, 19 Jahre
+
+Johannah Schäfer, k. A.
+
+Florian Bücker, 18 Jahre
+
+Nicolas Maurice, 18 Jahre
+
+Anton Ostermann, 17 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
