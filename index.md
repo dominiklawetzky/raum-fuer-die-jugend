@@ -160,9 +160,13 @@ Sabine Schneider, älter als 21 Jahre
 
 Hannah Schneider, 16 Jahre
 
-Fatma Aydin, 16 Jahre,
+Fatma Aydin, 16 Jahre
 
 Benedikt Schäfer, älter als 21 Jahre
+
+Conrad Mertens, 18 Jahre
+
+Kirsten Sonnenschein-Kuhlmann, älter als 21 Jahre
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
