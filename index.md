@@ -318,6 +318,10 @@ Milana Fromm, 16 Jahre
 
 Tim Eppens, 18 Jahre
 
+Merete Weinandi, 17 Jahre
+
+Sophie Schilling, 17 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
