@@ -192,6 +192,8 @@ Tim Heyer, 18 Jahre
 
 Janne Volz, 19 Jahre
 
+Thomas Wieczorek, älter als 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
