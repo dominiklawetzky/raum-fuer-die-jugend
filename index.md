@@ -106,7 +106,7 @@ Alexander Schwab, 18 Jahre
 
 Jan Jannsen, 18 Jahre
 
-Gian Luca Sundermann, 18 Jare
+Gian Luca Sundermann, 18 Jahre
 
 Patricia Wende, 18 Jahre
 
