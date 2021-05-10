@@ -148,5 +148,7 @@ Nicolas Maurice, 18 Jahre
 
 Anton Ostermann, 17 Jahre
 
+Felix Bauer, 17 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
