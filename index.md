@@ -18,7 +18,9 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 ### Eine Liste mit Orten, die weggefallen sind ...
 **Rheinufer in Eltville:** Nur eingeschränkt für Jugendliche attraktiv, großflächiges Alkoholverbot, häufige Polizeikontrollen und an Wochenenden und Feiertagen von Tourist\*innen überrannt
 
-**Rheingauer Weinberge:** Einige Hütten wurden geschlossen, andere sind sogar videoüberwacht
+**Eltviller / Kiedricher Weinberge:** einige Hütten wurden geschlossen, andere sind sogar videoüberwacht
+
+**Johannisberger Weinberge:** routinemäßige Polizeikontrollen
 
 **Jugendtreff in Kiedrich:** wird ggf. schließen wegen eines neu erschlossenen Wohngebiets
 
@@ -121,6 +123,10 @@ Adriana Schwab, 18 Jahre
 Jona Böttchen, 18 Jahre
 
 Carla Mudrack, 20 Jahre
+
+Felix Bleuel, älter als 21 Jahre
+
+Emma Reinartz, 18 Jahre
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
