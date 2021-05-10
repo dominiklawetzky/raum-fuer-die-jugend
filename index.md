@@ -262,6 +262,8 @@ Fabienne Krieger, 16 Jahre
 
 Janne Bartsch, 16 Jahre
 
+Björn Eichenauer, älter als 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
