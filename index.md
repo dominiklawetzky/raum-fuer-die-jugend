@@ -28,6 +28,8 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 **Park hinter dem Rewe-Markt am Eltviller Kiliancenter:** Alkoholverbotszone
 
+**Vereinsheim in Eltville:** wird nicht länger für Feiern vermietet
+
 Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen? [Hier melden!](https://forms.gle/VE1cerB4QKc21n8r8)
 
 ---
