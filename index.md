@@ -198,6 +198,68 @@ Matthias Ott, älter als 21 Jahre
 
 Leon Urbach, 18 Jahre
 
+Janne Hirning, 18 Jahre
+
+Ronny Wilhelm, älter als 21 Jahre
+
+Kia Dicker, 18 Jahre
+
+Lennard Scholz, 18 Jahre
+
+Linnea Moore, 18 Jahre
+
+Manuel Senger, 20 Jahre
+
+Lotta Friehmelt, 17 Jahre
+
+Svenja Schädla, 16 Jahre
+
+Jakob Friehmelt, 19 Jahre
+
+Daniel Solano Albes, 16 Jahre
+
+Helin Kara, 19 Jahre
+
+Marvin Rodrigues, 19 Jahre
+
+Eva Moore, älter als 21 Jahre
+
+Annika Stratmann, 18 Jahre
+
+Leon Rudi, 16 Jahre
+
+Marlena Monaco, 16 Jahre
+
+Elisa Kremer, 17 Jahre
+
+Julia Puchta, 17 Jahre
+
+Mika Möhring, 17 Jahre
+
+Lina Neu, 19 Jahre
+
+Christopher Hess, 19 Jahre
+
+Kim Liedtke, 21 Jahre
+
+Elisa Fuchs, 16 Jahre
+
+Cora Gawenda, 17 Jahre
+
+Patrick Lerch, 18 Jahre
+
+Lino Massing, 19 Jahre
+
+Kaan Coban, 19 Jahre
+
+Lars Nussbaum, 18 Jahre
+
+Luise Gutberlet, 17 Jahre
+
+Celina Raffel, 17 Jahre
+
+Fabienne Krieger, 16 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
