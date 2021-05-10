@@ -168,5 +168,9 @@ Conrad Mertens, 18 Jahre
 
 Kirsten Sonnenschein-Kuhlmann, älter als 21 Jahre
 
+Frederic Lippert, älter als 21 Jahre
+
+Beatrice Kreuzberger, 20 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
