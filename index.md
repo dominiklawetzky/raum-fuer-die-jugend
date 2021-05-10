@@ -130,7 +130,11 @@ Emma Reinartz, 18 Jahre
 
 Malka Schmitt, 15 Jahre
 
-Lena Brase, 19 Jahre
+Lena Brasen, 19 Jahre
+
+Lukas Neubauer, 18 Jahre
+
+Annika Minert, 18 Jahre
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
