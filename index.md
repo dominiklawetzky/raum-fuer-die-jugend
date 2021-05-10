@@ -150,5 +150,7 @@ Anton Ostermann, 17 Jahre
 
 Felix Bauer, 17 Jahre
 
+Alexandra Reinartz, älter als 21 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
