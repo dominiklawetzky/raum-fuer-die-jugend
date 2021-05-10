@@ -128,5 +128,7 @@ Felix Bleuel, älter als 21 Jahre
 
 Emma Reinartz, 18 Jahre
 
+Malka Schmitt, 15 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
