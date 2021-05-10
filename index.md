@@ -272,6 +272,52 @@ Ben Rosskopf, 20 Jahre
 
 Stella Fries, 20 Jahre
 
+Alexander Struppmann, älter als 21 Jahre
+
+Johannes Wagner, 17 Jahre
+
+Marcel Niestroj, 16 Jahre
+
+Amelia Holt, 16 Jahre
+
+Franka Bischof, 15 Jahre
+
+Christopher Moos, 17 Jahre
+
+Malin Driese, 16 Jahre
+
+Emely Endres, 16 Jahre
+
+Alicja Skoczylas, 16 Jahre
+
+Lisa Hammerschmidt, 17 Jahre
+
+Pauline Gohmann, 17 Jahre
+
+Christina Schneider, 17 Jahre
+
+Eva Saalmüller, 17 Jahre
+
+Mathis März, 16 Jahre
+
+Sarah Handke, 17 Jahre
+
+Vincent Molitor, 17 Jahre
+
+John Lankow, 17 Jahre
+
+Hannah Michaelis, 16 Jahre
+
+Andre Köhler, 18 Jahre
+
+Elias Gruber, 17 Jahre
+
+Jannis Neu, 16 Jahre
+
+Milana Fromm, 16 Jahre
+
+Tim Eppens, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
