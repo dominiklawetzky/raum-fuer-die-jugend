@@ -154,8 +154,6 @@ Alexandra Reinartz, älter als 21 Jahre
 
 Jan Kornfeld, 18 Jahre
 
-Lukas Prütz, 19 Jahre
-
 Sabine Schneider, älter als 21 Jahre
 
 Hannah Schneider, 16 Jahre
