@@ -260,6 +260,8 @@ Celina Raffel, 17 Jahre
 
 Fabienne Krieger, 16 Jahre
 
+Janne Bartsch, 16 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
