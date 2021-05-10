@@ -112,5 +112,7 @@ Patricia Wende, 18 Jahre
 
 Tobias Richter, 18 Jahre
 
+Jan-Christian Wilhelm, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
