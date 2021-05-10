@@ -180,6 +180,10 @@ Magdalena Priester, 19 Jahre
 
 Yadira Radke, 16 Jahre
 
+Fabia Goetze, 19 Jahre
+
+Carlo Bong, 19 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
