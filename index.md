@@ -39,6 +39,8 @@ Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen
 ### Unterzeichner\*innen
 _Die Liste wird täglich, aber nicht live aktualisiert._
 
+**Aktuell 241 Unterzeichner\*innen (11.05.2021, 22:14 Uhr)**
+
 #### Personen
 Dominik Lawetzky, 21 Jahre
 
