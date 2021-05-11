@@ -414,6 +414,44 @@ Lucia Thämlitz, 16 Jahre
 
 Janine Barth, 18 Jahre
 
+Anne Bloching, 17 Jahre
+
+Elona Ahmetaj, 16 Jahre
+
+Malin Wellstein, 16 Jahre
+
+Lili Fodor, 17 Jahre
+
+Niklas Ebbecke, 18 Jahre
+
+Gabriela Pakosz, 19 Jahre
+
+Tom Heine, 20 Jahre
+
+Friederike Roder, älter als 21 Jahre
+
+Panagiotis Katidis, 19 Jahre
+
+Keke Kürvers, 18 Jahre
+
+Flora Sulfi, 16 Jahre
+
+Luana Guerra, 17 Jahre
+
+Jan Rüdiger, 17 Jahre
+
+Luka Kačavenda, 20 Jahre
+
+Marius Brossmann, 17 Jahre
+
+Ellen de Lannoy, 18 Jahre
+
+Noémie Bill, 17 Jahre
+
+Linus Leotta, 19 Jahre
+
+Maurice Gregor, 19 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
