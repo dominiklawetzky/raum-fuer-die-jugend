@@ -452,6 +452,68 @@ Linus Leotta, 19 Jahre
 
 Maurice Gregor, 19 Jahre
 
+Niklas Laube, 20 Jahre
+
+Bjarne Mudrack, 14 Jahre
+
+Saskia Knöpfel, 16 Jahre
+
+Johanna Mrugowsky, 16 Jahre
+
+Marco Schubbach, k. A.
+
+Louis Stach, 16 Jahre
+
+David Solano Albes, 18 Jahre
+
+Luca Simon, 18 Jahre
+
+Klara Kuhn, k. A.
+
+Luise Maucher, 17 Jahre
+
+Felicia Waibel, 15 Jahre
+
+Lisa Pykal, 21 Jahre
+
+Michelle Esselborn, 20 Jahre
+
+Annika Kohles, 18 Jahre
+
+Alina Bender, 19 Jahre
+
+Sylvia Plietzsch, älter als 21 Jahre
+
+Niclas Kühne, 18 Jahre
+
+Selina Rothfuchs, 17 Jahre
+
+Noah Gaber, 18 Jahre
+
+Tanja Engelmann, k. A.
+
+Zoë Picard, 17 Jahre
+
+Elona Ahmetaj, 16 Jahre
+
+Jonas Höckmann, 17 Jahre
+
+Tom Rausch, 16 Jahre
+
+Laura Gerhard, 18 Jahre
+
+Maureen Ritter, 20 Jahre
+
+Inga Olze, älter als 21 Jahre
+
+Paul Metzmacher, 16 Jahre
+
+Enya Amrein, 15 Jahre
+
+Nele Bsullak, 16 Jahre
+
+Luisa Brückner, 16 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
