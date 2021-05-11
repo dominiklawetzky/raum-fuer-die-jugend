@@ -322,6 +322,98 @@ Merete Weinandi, 17 Jahre
 
 Sophie Schilling, 17 Jahre
 
+Lisa Fehrmann, 18 Jahre
+
+Isabel Holzbeck, 18 Jahre
+
+Luisa Bender, 17 Jahre
+
+Annika Otte, 18 Jahre
+
+Hannah Wilson, 19 Jahre
+
+Ronja Otzen, 19 Jahre
+
+Lea Sommer, 20 Jahre
+
+Henry Bong, 16 Jahre
+
+Elisabeth Iflinger, 18 Jahre
+
+Francesca Rieht, 18 Jahre
+
+Isabel Schwarz, 17 Jahre
+
+Luca Viviane Engel, 18 Jahre
+
+Simon Jäger, 16 Jahre
+
+Moritz Fahl, 18 Jahre
+
+Regina Engelmann, 18 Jahre
+
+Maja Löwe, 18 Jahre
+
+Simon Klein, 17 Jahre
+
+Lukas Bremser, 20 Jahre
+
+Hannah Pieper, 18 Jahre
+
+Jakob Gertheinrich, 17 Jahre
+
+Sheikh Talha Ma, 18 Jahre
+
+Lisa Rausch, 18 Jahre
+
+Sophia Bonavitacola, 16 Jahre
+
+Annika Schneider, 17 Jahre
+
+Bastian Hirsch, 18 Jahre
+
+Jan-Luca Brandt, 16 Jahre
+
+Silas Bouwer, 20 Jahre
+
+Ricarda Löwe, 16 Jahre
+
+Anna Sommer, 20 Jahre
+
+Silja-Marie Schwed, 15 Jahre
+
+Elena Bender, 15 Jahre
+
+Lea Duronic, 16 Jahre
+
+Melina Kugler, 16 Jahre
+
+Noah Frey, 15 Jahre
+
+Alena Flöck, 18 Jahre
+
+Lena Boblest, 17 Jahre
+
+Marika Scharmanm, 19 Jahre
+
+Niklas Engel, 21 Jahre
+
+Felix Laube, 19 Jahre
+
+Lena Schneider, 21 Jahre
+
+Chiara Rudi, 19 Jahre
+
+Philipp Birkel, 17 Jahre
+
+Mishaal Al Khalidi, 18 Jahre
+
+Julie Marinet, 16 Jahre
+
+Lucia Thämlitz, 16 Jahre
+
+Janine Barth, 18 Jahre
+
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
