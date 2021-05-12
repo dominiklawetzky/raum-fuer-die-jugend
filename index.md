@@ -39,7 +39,7 @@ Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen
 ### Unterzeichner\*innen
 _Die Liste wird täglich, aber nicht live aktualisiert._
 
-**Aktuell 241 Unterzeichner\*innen (11.05.2021, 22:14 Uhr)**
+**Aktuell 249 Unterzeichner\*innen (12.05.2021, 21:44 Uhr)**
 
 #### Personen
 Dominik Lawetzky, 21 Jahre
@@ -515,6 +515,24 @@ Enya Amrein, 15 Jahre
 Nele Bsullak, 16 Jahre
 
 Luisa Brückner, 16 Jahre
+
+Charlotte Weinreich, 16 Jahre
+
+Susanne Kuhn, älter als 21 Jahre
+
+Lily Thüsing, 16 Jahre
+
+Jan Nussbaum, älter als 21 Jahre
+
+Annika Gunkel, älter als 21 Jahre
+
+Susan Pansa, älter als 21 Jahre
+
+Mario Pansa, älter als 21 Jahre
+
+Luca Elser, älter als 21 Jahre
+
+Leander Dreßler, 19 Jahre
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
