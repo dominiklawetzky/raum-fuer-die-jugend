@@ -39,7 +39,7 @@ Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen
 ### Unterzeichner\*innen
 _Die Liste wird täglich, aber nicht live aktualisiert._
 
-**Aktuell 249 Unterzeichner\*innen (12.05.2021, 21:44 Uhr)**
+**Aktuell 254 Unterzeichner\*innen (17.05.2021, 20:05 Uhr)**
 
 #### Personen
 Dominik Lawetzky, 21 Jahre
@@ -533,6 +533,31 @@ Mario Pansa, älter als 21 Jahre
 Luca Elser, älter als 21 Jahre
 
 Leander Dreßler, 19 Jahre
+
+Charlotte Weinreich, 16 Jahre
+
+Susanne Kuhn, älter als 21 Jahre
+
+Lily Thüsing, 16 Jahre
+
+Panagiotis Katidis, 19 Jahre
+
+Jan Nussbaum, älter als 21 Jahre
+
+Susan Pansa, älter als 21 Jahre
+
+Mario Pansa, älter als 21 Jahre
+
+Luca Elser, 18 Jahre
+
+Luca Guerra, älter als 21 Jahre
+
+Conor John McKeever, 21 Jahre
+
+Nathaniel Kirschbaum, 21 Jahre
+
+Daniel Heimann, älter als 21 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
