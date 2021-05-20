@@ -38,6 +38,8 @@ Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen
 Am 18. Mai berichtete der [_Wiesbadener Kurier_](https://www.wiesbadener-kurier.de/lokales/rheingau/ruedesheim/unterschriften-fur-jugendinitiative-im-rheingau_23718104) über die Initiative:
 > Mehr als 250 Unterschriften für eine Jugendinitiative im Rheingau hat der 21-jährige Grünen-Kreistagsabgeordnete Dominik Lawetzky in einer Woche gesammelt – und es sollen noch mehr werden. Die Initiative „Raum für die Jugend“ fordert wieder mehr öffentlichen Raum für Jugendliche und junge Erwachsene im Rheingau. 
 
+Außerdem gibt es mittlerweile ein [Blogpost zu den Hintergründen der Initiative](https://dominiklawetzky.de/raum-fuer-die-jugend/).
+
 ---
 
 ### Unterzeichner\*innen
