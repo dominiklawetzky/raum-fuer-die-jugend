@@ -558,8 +558,18 @@ Nathaniel Kirschbaum, 21 Jahre
 
 Daniel Heimann, älter als 21 Jahre
 
+Julia Schubert, 18 Jahre
+
+Chiara Hulbert, 16 Jahre
+
+Lilli Ringsdorf, älter als 21 Jahre
+
+Sonja Klein, älter als 21 Jahre
+
 
 #### Vereine / Organisationen
 Grüne Jugend Rheingau-Taunus
 
 Jusos Rheingau-Taunus-Kreis
+
+DPSG Normannen Eltville
