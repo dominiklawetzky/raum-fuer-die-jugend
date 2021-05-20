@@ -34,6 +34,10 @@ Am attraktiven Eltviller Rheinufer ist der Konsum alkoholischer Getränke unters
 
 Dir fallen noch weitere Orte ein, die weggefallen sind oder in Zukunft wegfallen? [Hier melden!](https://forms.gle/VE1cerB4QKc21n8r8)
 
+### Berichterstattung
+Am 18. Mai berichtete der [_Wiesbadener Kurier_](https://www.wiesbadener-kurier.de/lokales/rheingau/ruedesheim/unterschriften-fur-jugendinitiative-im-rheingau_23718104) über die Initiative:
+> Mehr als 250 Unterschriften für eine Jugendinitiative im Rheingau hat der 21-jährige Grünen-Kreistagsabgeordnete Dominik Lawetzky in einer Woche gesammelt – und es sollen noch mehr werden. Die Initiative „Raum für die Jugend“ fordert wieder mehr öffentlichen Raum für Jugendliche und junge Erwachsene im Rheingau. 
+
 ---
 
 ### Unterzeichner\*innen
