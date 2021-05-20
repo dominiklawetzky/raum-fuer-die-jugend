@@ -45,7 +45,7 @@ Außerdem gibt es mittlerweile ein [Blogpost zu den Hintergründen der Initiativ
 ### Unterzeichner\*innen
 _Die Liste wird täglich, aber nicht live aktualisiert._
 
-**Aktuell 254 Unterzeichner\*innen (17.05.2021, 20:05 Uhr)**
+**Aktuell 360 Unterzeichner\*innen (20.05.2021, 12:19 Uhr)**
 
 #### Personen
 Dominik Lawetzky, 21 Jahre
